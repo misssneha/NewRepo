@@ -43,7 +43,7 @@ Serve hot or pack it for lunch to enjoy the yummy **Maggi Masala**.
 ## I Hope Everyone Try This At Their Home :stuck_out_tongue_winking_eye: And Never Share Your Maggi:joy:
 
 
- ###  Thanks For Watching........
+ ###  Thanks For Reading........
                                                                                
 
 *Helped by [Hasibul](https://github.com/starhasibul) and [Snehashis](https://github.com/snehashis365) but created by [Sneha](https://gist.github.com/misssneha) .*
